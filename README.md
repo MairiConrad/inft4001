@@ -103,3 +103,9 @@ W0474724
 💞️ I’m looking to collaborate on ... -projects to help improve and develop my skills-
 📫 How to reach me ... -aishaakinyera@gmail.com-
 
+👋 Hi, I’m Mairi
+👀 I’m interested in ... -music, art and gaming-
+🌱 I’m currently learning ... -Business Intelligence and Analytics-
+💞️ I’m looking to collaborate on ... -Marketing Analytics-
+📫 How to reach me ... -W0460056@nscc.ca-
+Thanks Nicole, I really enjoyed your course!
